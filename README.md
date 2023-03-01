@@ -1,5 +1,5 @@
 # 💫 About Me:
-A software and aerospace engineer that enjoys programming and learning. <br>
+cloud engineer. <br>
 
 
 ## 🌐 Socials:
